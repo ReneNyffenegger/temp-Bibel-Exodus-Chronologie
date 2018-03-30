@@ -1,0 +1,1 @@
+# temp-Bibel-Exodus-Chronologie
