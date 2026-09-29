@@ -3,6 +3,8 @@ https://www.inspyred.net/95-thesen/
 - Weitere biblisch erwähnte Lagerstellen wie Elim (heute Tayyib al Ism:
   28°34’09’’N/34°49’56’’O) sind definiert; teils durch tradiertes
   Stammeswissen, teils durch neuere Forschungsarbeiten (s. Lennart Möller).
+
+  -> https://www.google.com/maps/@28.5694864,34.833075,526a,35y,11.86h
   
 - Der biblische Berg Sinai, Jabal Maqla, wo Moses die zehn Gebote erhielt,
   liegt ebenfalls im nördlichen Saudiarabien, wenig südlich des Jebel al Lawz
