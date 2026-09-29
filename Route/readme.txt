@@ -5,6 +5,7 @@ https://www.inspyred.net/95-thesen/
   Stammeswissen, teils durch neuere Forschungsarbeiten (s. Lennart Möller).
 
   -> https://www.google.com/maps/@28.5694864,34.833075,526a,35y,11.86h
+  -> https://www.youtube.com/watch?v=OzrAMWxCPko
   
 - Der biblische Berg Sinai, Jabal Maqla, wo Moses die zehn Gebote erhielt,
   liegt ebenfalls im nördlichen Saudiarabien, wenig südlich des Jebel al Lawz
